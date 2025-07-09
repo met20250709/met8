@@ -10,4 +10,4 @@
 
 这些资源站点为用户提供了多样化的视频资源，涵盖欧美、国产等多个分类，并支持多种清晰度播放，满足不同用户的观影偏好。影片页面配有完整介绍与演员信息，方便用户快速筛选内容。平台播放稳定，无卡顿现象，带来流畅的观看体验。91精品欧美一区二区三区与国产乱子伦农村叉叉叉等资源也持续更新，适合多类型观众需求。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/met20250709/met8 ）</span>
